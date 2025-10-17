@@ -1,7 +1,8 @@
 ㅤ۪  𝅄ㅤ ꒰  美な  ꒱  ⏤ㅤ  ۪ ୧
 ㅤ 🌸 . kikiㅤ𐚁ㅤ۪ ㅤ݂ Capricorn ᡣ𐭩   ⋆ ◞
 ㅤ𓈒ㅤ୭ৎ  she/theyㅤ𝅄ㅤ.  🍥 ۪ ⠀ׂㅤ.  ꒱
-          ｡ﾟ•┈୨♡୧┈• ｡ﾟ
+        
+           ｡ﾟ•┈୨♡୧┈• ｡ﾟ
           <img width="2520" height="1440" alt="The__Us__From_Back_Then_T" src="https://github.com/user-attachments/assets/5490a90e-2119-4ebd-b1b1-a3926fc14075" />
 
 <!--
@@ -18,4 +19,3 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-![KAngel-kiss-blow](https://github.com/user-attachments/assets/4184edef-9fd6-4567-b395-5c2c50dee983)
