@@ -1,9 +1,8 @@
 ㅤ۪  𝅄ㅤ ꒰  美な  ꒱  ⏤ㅤ  ۪ ୧
 ㅤ 🌸 . kikiㅤ𐚁ㅤ۪ ㅤ݂ Capricorn ᡣ𐭩   ⋆ ◞
 ㅤ𓈒ㅤ୭ৎ  she/theyㅤ𝅄ㅤ.  🍥 ۪ ⠀ׂㅤ.  ꒱
-        
-           ｡ﾟ•┈୨♡୧┈• ｡ﾟ
-          <img width="2520" height="1440" alt="The__Us__From_Back_Then_T" src="https://github.com/user-attachments/assets/5490a90e-2119-4ebd-b1b1-a3926fc14075" />
+          ![honami-mochizuki-mochizuki-honami](https://github.com/user-attachments/assets/b331908e-9cdb-4408-b901-17deb241d4df)
+
 
 <!--
 **dreamynilou/dreamynilou** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
