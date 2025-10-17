@@ -1,4 +1,7 @@
-## Hi there 👋
+ㅤ۪  𝅄ㅤ ꒰  美な  ꒱  ⏤ㅤ  ۪ ୧
+ㅤ 🌸 . kikiㅤ𐚁ㅤ۪ ㅤ݂ Capricorn ᡣ𐭩   ⋆ ◞
+ㅤ𓈒ㅤ୭ৎ  she/theyㅤ𝅄ㅤ.  🍥 ۪ ⠀ׂㅤ.  ꒱
+![G2T08LdbMAA1GJJ](https://github.com/user-attachments/assets/71edbbaf-6944-420d-9ada-481b3684dd2e)
 
 <!--
 **dreamynilou/dreamynilou** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
